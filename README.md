@@ -1,3 +1,13 @@
+### Hi there 👋
+
+- 🐱‍💻 Studying the 3nd semester of Computer Science at Universidade Federal Fluminense
+- 📚  Always learning
+- 🕵️‍♂️ I’m looking  for my first job
+- 😄 Pronouns: He/Him
+- 📫 Living in Brazil
+
+
+##
 
 
 <div align="center">
